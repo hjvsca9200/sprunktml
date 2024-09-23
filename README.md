@@ -5,4 +5,4 @@ i just uhhhhh
 
 wanted a simple way to play it without having to use itch.io
 
-(https://wolf-hal.itch.io/incredibox-sprunki) go support the original PLEASE VRO U NEED TO
+(https://wolf-hal.itch.io/incredibox-sprunki) <- go support the original PLEASE VRO U NEED TO
